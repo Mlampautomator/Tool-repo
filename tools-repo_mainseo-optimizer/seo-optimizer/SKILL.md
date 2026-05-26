@@ -1,1 +1,0 @@
-# SEO Optimizer Skill
